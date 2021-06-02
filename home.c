@@ -1,5 +1,5 @@
-this is my new home
+this is somu new home
 
 
-this is my new home folder
+this is somu new home folder
 
